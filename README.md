@@ -7,3 +7,25 @@
 <!---
 I mainly make configs and scripts and I sometimes paste some anticheats (very bad at it though)
 --->
+
+. 　　　。　　　　•　 　ﾟ　　。 　　.
+
+
+
+　　　.　　　 　　.　　　　　。　　 。　. 　
+
+
+
+.　　 。　　　　　 ඞ 。 . 　　 • 　　　　•
+
+
+
+　　ﾟ　　 Red was not An Impostor.　 。　.
+
+
+
+　　'　　　 1 Impostor remains 　 　　。
+
+
+
+　　ﾟ　　　.　　　. ,　　　　.　 .
