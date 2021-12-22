@@ -27,5 +27,6 @@ I mainly make configs and scripts and I sometimes paste some anticheats (very ba
 　　'　　　 1 Impostor remains 　 　　。
 
 
+[![Xinpeng's GitHub stats](https://github-readme-stats.vercel.app/api?username=poopyhed444)](https://github.com/anuraghazra/github-readme-stats)
 
 　　ﾟ　　　.　　　. ,　　　　.　 .
