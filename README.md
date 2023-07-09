@@ -2,7 +2,7 @@
 - 👀 I’m interested in Java, and Kotlin, and I would like to do Frontend/Python in the future
 - 🌱 I like lifting weights and helping others and some other niche stuff like debating and investing and biotech
 - 💞️ I’m looking to collaborate on creating Minecraft Plugins/Mods and other projects.
-- 📫 How to reach me Discord: xine#3434 
+- 📫 How to reach me Discord: justxine
 
 <!---
 I mainly make configs and scripts and I sometimes paste some anticheats (very bad at it though)
